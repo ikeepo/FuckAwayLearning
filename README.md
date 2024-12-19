@@ -1,0 +1,2 @@
+# FuckAwayLearning
+Let'sTraining
